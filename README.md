@@ -1,6 +1,3 @@
-# CHAR-The2in1guy
-Just another character idea I made.
-
 # The 2 in 1 guy
 The 2 in one guy is, well clearly, a guy that is actually 2.
 
@@ -17,3 +14,7 @@ for example; personality 1 would want red hair, then personality 2 would like lo
 
 THIS HAS A TRANSITION!\
 instead of you just blinking and his hair is different, it would fade into the next form. I really do wanna make a sketch of this, but i have zero idea how. 
+
+# Other bits
+Adding on top of this, both personalities would not be able to share the same memories nor talk to each other by normal means. yes, if they wrote letters to each other thad be fine.\
+And more I wanted to add, the transition can be violent sometimes. either by siezure, loosing balance, lighthdeadedness, so fourth. 
